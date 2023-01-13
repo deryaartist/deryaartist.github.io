@@ -1,1 +1,0 @@
-# deryaartist.github.io
